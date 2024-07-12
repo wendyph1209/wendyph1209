@@ -1,4 +1,4 @@
-Hola!!! me llamo Wendy y soy Ingeniera Sistemas Computacionales ✌️ y
+Hola 🖖🫡!!! me llamo Wendy y soy Ingeniera en Sistemas Computacionales ✌️ y
 Analista Junior de Ciberseguridad (●'◡'●) |
 Soy parte de Mujer Digital (3ra Gen) 😍|
 y támbien becada de Hackademy 2024 ╰(*°▽°*)╯
